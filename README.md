@@ -17,4 +17,4 @@
 
 ## קישור למשחק
 
-[קישור למשחק ב-Itch] קישור
+https://talya-amd-roei.itch.io/homework9 קישור
